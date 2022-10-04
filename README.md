@@ -18,7 +18,7 @@ Franchises CallofRD Ghost owns currently:
 "Will Ghost buy and play more titles and lists all of them here?"
 > Yes, Absolutely. I can't afford to buy MW2019 and MWII at the moment. I only have Call of Duty®: Mobile right now, so be sure to check the folder provided... (Answer by CallofRD Ghost)
 
-More FAQs' coming soon. All Questions and Answers are made by CallofRD Ghost, nad he will post more soon with your questions also, so post your questions on GitHub Issues
+More FAQs' coming soon. All Questions and Answers are made by CallofRD Ghost, and he will post more soon with your questions also, so post your questions on GitHub Issues
 
 ---
 
