@@ -20,3 +20,5 @@ Fully automatic assault rifle with high fire rate. Effective at medium range
 - REAR GRIP: Granulated Grip Tape
 
 ---
+
+More loadouts Coming Soon! Stay tuned...
